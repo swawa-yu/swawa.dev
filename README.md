@@ -1,2 +1,4 @@
 # swawa.dev
-my website
+my website✌️
+
+→ [swawa.dev](https://swawa.dev)
